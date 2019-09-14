@@ -3,10 +3,10 @@
 红杏视频，1280APP，红杏APP
 
 社区声明：
-https://1280APP.com
+https://1280app.com/
 
-小草客户端讨论：
-https://t66y.com/read.php?tid=1648542
+红杏视频讨论：
+http://hxbbs.cc/
 
 
 
